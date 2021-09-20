@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @peterdlt
 - 👀 I’m interested in cooking, chess and badminton.
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning about financial markets.
 - 💞️ I’m looking to collaborate on data driven projects.
 - 📫 How to reach me: peter.dltruong@gmail.com
 
